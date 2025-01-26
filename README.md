@@ -16,5 +16,5 @@ Finish the Project on time .
 
 
 
-Odin proj
+Odin project
 
