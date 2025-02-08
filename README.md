@@ -21,3 +21,5 @@ Not yet done
 
 Same as january 30, little progression.
 
+Keep moving forward
+
