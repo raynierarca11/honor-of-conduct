@@ -18,6 +18,7 @@ Finish the Project on time.
 
 Odin project
 Not yet done
+Be Consistent please
 
 Same as january 30, little progression.
 
