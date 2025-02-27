@@ -25,9 +25,10 @@ Same as january 30, little progression.
 
 Feb 22, 2025. sigh.
 
+
 Keep moving forward
 
 Keep moving forward, you gotta do this.
 
-keep moving forward
+keep moving forward . . 
 
