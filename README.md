@@ -12,7 +12,7 @@ Do not post someone's personal information or post links to personal information
 Additionally, The Project and its core members reserve the right to ban or otherwise disable the account(s) of users in defiance of this code of conduct or for any other reason they see fit.sigh
 
 sigh
-Finish the Project on time. 
+Finish the Project on time.  sigjh
 ..
 
 
