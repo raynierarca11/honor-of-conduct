@@ -1,5 +1,5 @@
 # honor-of-conduct
-Remember:,,, eee
+Remember:
 
 Be polite, welcoming, and inclusive.
 ewew
@@ -14,6 +14,8 @@ Additionally, The Project and its core members reserve the right to ban or other
 sigh
 Finish the Project on time.  sigjh
 ..
+
+did not finished because oh time management is so
 
 
 
