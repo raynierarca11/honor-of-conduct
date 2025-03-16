@@ -3,7 +3,7 @@ Remember:
 
 Be polite, welcoming, and inclusive.ee
 ewew
-Inappropriate conduct and harassment of any kind will not be tolerated. Any such remarks will result in an immediate ban.
+Inappropriate conduct and harassment of any kind will not be tolerated. Any such remarks will redsdsult in an immediate ban.
 
 Actions that seem specifically designed to test the limits of what is offensive and serve no other purpose (i.e., trolling) will not be tolerated, and such sessions will be immediately terminated.
 
