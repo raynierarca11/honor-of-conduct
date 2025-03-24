@@ -15,7 +15,7 @@ sigh
 Finish the Project on time.  sigjhd
 ..
 
-did not finished because oh time management is so
+did not finished because oh time management is sog
 
 
 
