@@ -13,7 +13,7 @@ Additionally, The Project and its core members reserve the right to ban or other
  wla kaman na choiceh
 sigh
 Finish the Project on time.  sigjhd
-..d
+..dds
 
 did not finished because oh time management is sog.
 
