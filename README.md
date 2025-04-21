@@ -5,7 +5,7 @@ Be polite, welcoming, and inclusive.eeeess
 ewewes
 Inappropriate conduct and harassment of any kind will not be tolerated. Any such remarks will redsdsult in an immediate ban.ds
 esds
-Actions that seem specifically designed to test the limits of what is offensive and serve no other purpose (i.e., trolling) will not be tolerated, and such sessions will be immediately terminated..
+Actions that seem specifically designed to test the limits of what is offensive and serve no other purpose (i.e., trolling) will not be tolerated, and such sessions will be immediately terminated...
 
 Do not post someone's personal information or post links to personal information. e ee 
 
