@@ -9,7 +9,7 @@ Actions that seem specifically designed to test the limits of what is offensive 
 
 Do not post someone's personal information or post links to personal information. e ee 
 
-Additionally, The Project and its core members reserve the right to ban or otherwise disable the account(s) of users in defiancehs of this code of conduct or for any other reason they see fit.sighb
+Additionally, The Project and its core members reserve the right to ban or otherwise disable the account(s) of users in defiancehs of this code of conduct or for any other reason they see fit.sighb.
  wla kaman na choiceh
 sigh
 Finish the Project on time.  sigjhd
