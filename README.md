@@ -21,7 +21,7 @@ did not finished because oh time management is sog.
 
 Odin project
 Not yet done
-Be Consistent please
+Be Consistent please.
 
 Same as january 30, little progression.
 
