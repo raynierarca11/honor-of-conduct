@@ -8,7 +8,7 @@ esds.......
 Actions that seem specifically designed to test the limits of what is offensive and serve ...no other purpose (i.e., trollin...g) will not be tolerated, and such sessions will be immediately terminated....
 ..
 Do not post someone's personal information or post links to personal information. e ee .,.
-
+..
 Additionally, The Project and its core members reserve the right to ban or otherwise disable the account(s) of users in defiancehs of this code of conduct or for any other reason they see fit.sighb..
  wla kaman na choiceh
 sigh
