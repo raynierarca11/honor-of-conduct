@@ -1,6 +1,6 @@
 # honor-of-conduct
 Remember:
-
+..
 Be polite, welcoming, and inclusive.eeeess
 ewewess.......
 Inappropriate conduct and harassment of any kind will .not byeahe tolerated. Any such remarks will redsdsult in an immedi.,.,ate ban.ds.
